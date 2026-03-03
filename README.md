@@ -1,0 +1,1 @@
+# sman7pocoranaka
